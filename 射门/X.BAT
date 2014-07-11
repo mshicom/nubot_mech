@@ -1,0 +1,15 @@
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\USERS\HKH\DESKTOP\NUBOT_MECH\射门\射门机构-仿真-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\侧板-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
+C:\Users\HKH\Desktop\nubot_mech\射门\射门机构3-静应力分析 1
