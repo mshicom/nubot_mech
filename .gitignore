@@ -1,4 +1,5 @@
 #忽略windows生成的缩略图文件
 Thumbs.db
 ~$*
-*.xls*
+垫付.xlsx
+报价.xlsx
